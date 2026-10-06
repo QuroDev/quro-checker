@@ -13,3 +13,8 @@ Grab the latest `QuroChecker.exe` from the [**Releases**](../../releases/latest)
 3. Pick a check mode from the menu
 
 Close anytime with the X button.
+
+
+## BUY HERE 
+
+https://qurodev.mysellauth.com/product/username-checker-v1
